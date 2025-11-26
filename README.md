@@ -14,6 +14,9 @@ I need to know where your loyalties lie
 ### 2025-11-25
 Tell me, are you gonna bark or bite?
 
+### 2025-11-26
+Do you really wanna twist a knife in the belly of the monster?
+
 
 
 
