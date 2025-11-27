@@ -17,6 +17,9 @@ Tell me, are you gonna bark or bite?
 ### 2025-11-26
 Do you really wanna twist a knife in the belly of the monster?
 
+### 2025-11-27
+Get the fuck up, wake the fuck up
+
 
 
 
