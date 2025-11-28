@@ -20,6 +20,9 @@ Do you really wanna twist a knife in the belly of the monster?
 ### 2025-11-27
 Get the fuck up, wake the fuck up
 
+### 2025-11-28
+Wipe the system and back the fuck up
+
 
 
 
