@@ -26,6 +26,9 @@ Wipe the system and back the fuck up
 ### 2025-11-29
 You're a puppet, when they cut your strings off
 
+### 2025-11-30
+Don't comе crawling back
+
 
 
 
