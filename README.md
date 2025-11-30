@@ -23,6 +23,9 @@ Get the fuck up, wake the fuck up
 ### 2025-11-28
 Wipe the system and back the fuck up
 
+### 2025-11-29
+You're a puppet, when they cut your strings off
+
 
 
 
