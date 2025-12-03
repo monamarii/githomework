@@ -32,6 +32,9 @@ Don't comе crawling back
 ### 2025-12-01
 Kingslayer, destroying castles in thе sky
 
+### 2025-12-02
+Kingslayer, forevermore the apple of my eye
+
 
 
 
