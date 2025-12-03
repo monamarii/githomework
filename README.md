@@ -29,6 +29,9 @@ You're a puppet, when they cut your strings off
 ### 2025-11-30
 Don't comе crawling back
 
+### 2025-12-01
+Kingslayer, destroying castles in thе sky
+
 
 
 
