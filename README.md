@@ -38,6 +38,8 @@ Kingslayer, forevermore the apple of my eye
 ### 2025-12-03
 I'd sacrifice my life to find you, angel of the blade
 
+### 2025-12-04
+Kingslayer, come and collect us from the night
 
 
 
