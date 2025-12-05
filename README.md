@@ -41,5 +41,8 @@ I'd sacrifice my life to find you, angel of the blade
 ### 2025-12-04
 Kingslayer, come and collect us from the night
 
+### 2025-12-05
+暗い、この見えない世界
+
 
 
