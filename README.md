@@ -44,5 +44,7 @@ Kingslayer, come and collect us from the night
 ### 2025-12-05
 暗い、この見えない世界
 
+### 2025-12-06
+まだ消えない未来
 
 
