@@ -73,3 +73,7 @@ Wipe the system and back the fuck up
 
 ### 2025-12-15
 You're a puppet, when they cut your strings off
+
+### 2025-12-16
+Don't come crawling back, you're on your own
+
