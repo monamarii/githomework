@@ -79,3 +79,6 @@ Don't come crawling back, you're on your own
 
 ### 2025-12-17
 さあ時の扉を開けて行こうよ
+
+### 2025-12-18
+Kingslayer, destroying castles in the sky
