@@ -77,3 +77,5 @@ You're a puppet, when they cut your strings off
 ### 2025-12-16
 Don't come crawling back, you're on your own
 
+### 2025-12-17
+さあ時の扉を開けて行こうよ
